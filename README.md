@@ -1,4 +1,14 @@
-## Hi there <img width="250" height="280" alt="DespicableMeMinionsGIF" src="https://github.com/user-attachments/assets/2b43f1ea-ac4c-47c5-a189-a4390754db23" />
+## Hi
 
+
+I am a quick learner.
+
+
+
+
+“Your worst sin is that you have destroyed and betrayed yourself for nothing.”
+― Fyodor Dostoevsky, Crime and Punishment
+
+<img width="480" height="266" alt="ListeningGIF" src="https://github.com/user-attachments/assets/8f635145-1120-4981-94de-abaddfaf336f" />
 
 
